@@ -1,3 +1,5 @@
+![yankees-logo](new-york-yankees-logo-transparent.png)
+
 # New York
 
 *Derek Jeter*
